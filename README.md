@@ -10,19 +10,16 @@ rivals usr is js nessi1234 cs I currently cant change it 💔
 ok sorry for changing this again.
 
 
+![1000030588](https://github.com/user-attachments/assets/c4a472f5-dcdd-4f38-9863-60584cfdbc47)
 
-![1000030547](https://github.com/user-attachments/assets/3dfa19f2-8bff-4543-8481-95d471884cb5)
-
-<img width="150" height="19" alt="1000030548" src="https://github.com/user-attachments/assets/9c579026-42a1-4bee-912e-d6fd1d75566b" />      <img width="150" height="19" alt="1000030546" src="https://github.com/user-attachments/assets/436be753-05b4-4f9c-a0c1-0fdcea823e26" />
-
+![1000030589](https://github.com/user-attachments/assets/fe26796d-3291-4f74-b6df-882e6de136fd)
 
 
-![1000030550](https://github.com/user-attachments/assets/86a8fd08-3c9e-4953-aa4b-4928ba2c0f01)
+
+ -  - creds to @atomicbonk on tumblr for this lol !!
 
 
- -  - creds to @sigelkissed on tumblr for these themeparts lol !!
-
-
+<img width="1280" height="125" alt="1000030588" src="https://github.com/user-attachments/assets/2d7878f3-58af-41f4-8d02-5c4171053a73" />
 
 
 
