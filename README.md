@@ -1,5 +1,9 @@
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=noysjubileeyuuxs&color=red&style=flat-square"alt="profile views" />
 
+
+rivals usr is js nessi1234 cs I currently cant change it 💔
+
+
  ![1000030544](https://github.com/user-attachments/assets/db9a68ab-c2a7-415b-8943-fda3af07d454)
 
 
