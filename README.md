@@ -10,13 +10,15 @@ rivals usr is js nessi1234 cs I currently cant change it 💔
 ok sorry for changing this again.
 
 
-![1000030588](https://github.com/user-attachments/assets/c4a472f5-dcdd-4f38-9863-60584cfdbc47)
-
-![1000030589](https://github.com/user-attachments/assets/fe26796d-3291-4f74-b6df-882e6de136fd)
 
 
+![1000030656](https://github.com/user-attachments/assets/01004ff2-9bea-4adb-bb4e-5419b12a07fd)
 
- -  - creds to @atomicbonk on tumblr for this lol !!
+
+
+
+
+ -  - divider by @atomicbonk on tumblr , gif is made by ME !!
 
 
 <img width="1280" height="125" alt="1000030588" src="https://github.com/user-attachments/assets/2d7878f3-58af-41f4-8d02-5c4171053a73" />
